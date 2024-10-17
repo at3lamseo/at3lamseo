@@ -1,7 +1,6 @@
 - at3lam seo
 - مدونة at3lam seo، تقدم معلومات شاملة وبسيطة حول استراتيجيات السيو المختلفة
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 https://www.at3lamseo.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
